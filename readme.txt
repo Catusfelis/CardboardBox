@@ -1,1 +1,1 @@
-I am a house cat.  I want to learn how to use Github so I can contribute my own code and stop being called a NEET.
+I am a fuzzy kitty. I like to sleep and eat snacks. I live with another black kitty, a striped kitty, and two big kitties. The black kitty thinks I'm cool. He calls me Aniki all the time, but he reminds me of Stimpy.  The striped kitty hisses at me and makes me want to swat him.  The big kitties call me a NEET and say I should get a job.  But I do have a job.  I sit in my corner office by the window and supervise. 
